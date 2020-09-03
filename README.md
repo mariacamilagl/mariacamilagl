@@ -1,4 +1,12 @@
-### Hi there 👋
+### Hi there 👋 I'm Camila! 
+
+I'm an International Relations Grad with a Master in Public Policy  🌍 
+
+Noob intersectional feminist 🌈 
+
+I'm currently in love with UX, social data science & GIS 🤓 
+
+Sometimes I do i18n & Python 🐍
 
 <!--
 **mariacamilagl/mariacamilagl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
