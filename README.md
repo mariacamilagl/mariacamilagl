@@ -1,4 +1,4 @@
-### Hi there 👋 I'm Camila! 
+### Hi there 👋 I'm Camila! (she/her)
 
 I'm an International Relations Grad with a Master in Public Policy  🌍 
 
